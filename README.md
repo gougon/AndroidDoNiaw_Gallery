@@ -1,1 +1,0 @@
-# AndroidDoNiaw_Gallery
